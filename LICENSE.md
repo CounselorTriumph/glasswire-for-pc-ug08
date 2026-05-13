@@ -1,4 +1,4 @@
-# 
+# best GlassWire for PC | GlassWire for Windows Service | auto-connect + end-to-end-encryption is the best GlassWire for PC | GlassWire for Windows service, featuring auto-connect
 
 
 
